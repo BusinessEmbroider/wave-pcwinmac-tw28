@@ -1,4 +1,4 @@
-# 
+# Best Wave plugins for Mac OS | Free Wave plugins for PC Windows. Featuring multi-level approvals and pdf compression — optimized for maximum performance on every platform.
 
 
 
